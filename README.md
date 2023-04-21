@@ -1,1 +1,1 @@
-# DeatlyDestek
+# Destek-Talebi
